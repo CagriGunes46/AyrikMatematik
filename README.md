@@ -1,1 +1,1 @@
-# Ayr-kMatematik
+# AyrıkMatematik
