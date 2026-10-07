@@ -1,0 +1,1 @@
+# Ayrık Matematik dersimin  2. hafta ödevi 
